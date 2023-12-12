@@ -20,5 +20,7 @@
 Как проверял:<br>
 https://miniature-helicopter-682.notion.site/84a2da2163ad41f69184e452d4040f11
 
+## Контактная информация
 
+Email: s-a.sergeev@mail.ru
    
